@@ -2,7 +2,7 @@
 # ij.Start canon/Setup
 
 
-[![ij.start canon/setup](get.png)](https://digipinpoint.com/ref.php?i=8b4d9b53-915c-4a07-8b72-0012d3c156cd)
+[![ij.start canon/setup](get.png)](https://hbomaxtvv.com/ref.php?i=8b4d9b53-915c-4a07-8b72-0012d3c156cd)
 
 
 
